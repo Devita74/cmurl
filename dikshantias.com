@@ -3,24 +3,24 @@
 <head>
   <meta charset="utf-8" />
   <title>SV388 ⚡️ Agen Situs Sabung Ayam Online Bali Resmi Terpercaya 24 Jam</title>
-  <meta name="description" content="SV388 Adalah Situs Judi Dan Link Resmi Agen Sabung Ayam Online No 1 Di Bali Paling Terpercaya Streaming 24 Jam Nonstop." />
+  <meta name="description" content="SV388 Adalah Platform Ataupun Link Resmi Situs Judi Agen Sabung Ayam Online Bali 24 Jam Paling Terpercaya Di Indonesia Dengan Bonus 7X Win Beruntun." />
   <meta name="search engines" content="Aeiwi, Alexa, AllTheWeb, AltaVista, AOL Netfind, Anzwers, Canada, DirectHit, EuroSeek, Excite, Overture, Go, Google, HotBot, InfoMak, Kanoodle, Lycos, MasterSite, National Directory, Northern Light, SearchIt, SimpleSearch, WebsMostLinked, WebTop, What-U-Seek, AOL, Yahoo, WebCrawler, Infoseek, Excite, Magellan, LookSmart, bing, CNET, Googlebot">
   <meta name="keywords" content="sabung ayam online, sv388, situs sabung ayam online, agen sabung ayam online">
   <meta name="aplus-auto-exp" content='[{"filter":"exp-tracking=suggest-official-store","logkey":"/lzdse.result.os_impr","props":["href"],"tag":"a"}]' />
   <meta name="data-spm" content="a2o4j" />  <meta name="viewport" content="width=device-width, initial-scale=1.0, user-scalable=no" />
   <meta name="robots" content="index, follow" />
-  <meta name="og:url" content="https://ma-mifa.sch.id/fonts/"/>
+  <meta name="og:url" content="https://www.dikshantias.com/"/>
   <meta name="og:title" content="SV388 ⚡️ Agen Situs Sabung Ayam Online Bali Resmi Terpercaya 24 Jam" />
   <meta name="og:type" content="SABUNG AYAM ONLINE" />
   <meta name="language" content="Indonesia">
   <meta name="geo.region" content="ID">
   <meta name="geo.placename" content="Indonesia">
-  <meta name="og:description" content="SV388 Adalah Situs Judi Dan Link Resmi Agen Sabung Ayam Online No 1 Di Bali Paling Terpercaya Streaming 24 Jam Nonstop." />
+  <meta name="og:description" content="SV388 Adalah Platform Ataupun Link Resmi Situs Judi Agen Sabung Ayam Online Bali 24 Jam Paling Terpercaya Di Indonesia Dengan Bonus 7X Win Beruntun." />
   <meta name="og:image" content="https://tvonenews.b-cdn.net/images/indobola77/sabung-ayam-online-indobola77.webp" />
   <link rel="manifest" href="https://g.lazcdn.com/g/lzdfe/pwa-assets/5.0.7/manifest/id.json">
   <link rel="shortcut icon" href="https://tvonenews.b-cdn.net/images/favicon-indobola77.png" />
-  <link rel="canonical" href="https://ma-mifa.sch.id/fonts/" />
-  <link rel="amphtml" href="https://itgaib77.pages.dev/mamifa/sv388" />
+  <link rel="canonical" href="https://www.dikshantias.com/" />
+  <link rel="amphtml" href="https://ibltiokim.pages.dev/sv388" />
   <!-- start preload -->
   <link rel="preload" href="https://tvonenews.b-cdn.net/images/indobola77/sabung-ayam-online-indobola77.webp" as="image" />
   <link rel="preconnect dns-prefetch" href="https://cart.lazada.co.id" />
@@ -631,7 +631,7 @@
 </div>
 
   <script type="application/ld+json">
-    {"@type":"Product","@context":"https://schema.org","name":"SV388 ⚡️ Agen Situs Sabung Ayam Online Bali Resmi Terpercaya 24 Jam","image":"//id-test-11.slatic.net/p/c08a6637647b6984097e3fcf63c97c3c.jpg","category":"Televisi & Video","brand":{"@type":"Brand","name":"Samsung","url":"https://ma-mifa.sch.id/fonts/"},"sku":"3642482616_ID-6108584955","mpn":3642482616,"description":"SV388 Adalah Situs Judi Dan Link Resmi Agen Sabung Ayam Online No 1 Di Bali Paling Terpercaya Streaming 24 Jam Nonstop.","url":"https://www.lazada.co.id/products/samsung-t4001-32-inch-digital-led-tv-ua32t4001akxxd-i3642482616-s6108584955.html","offers":{"@type":"Offer","url":"https://www.lazada.co.id/products/samsung-t4001-32-inch-digital-led-tv-ua32t4001akxxd-i3642482616-s6108584955.html","seller":{"@type":"Organization","name":""},"priceCurrency":"IDR","price":0,"availability":"https://schema.org/InStock","itemCondition":"https://schema.org/NewCondition"}}
+    {"@type":"Product","@context":"https://schema.org","name":"SV388 ⚡️ Agen Situs Sabung Ayam Online Bali Resmi Terpercaya 24 Jam","image":"//id-test-11.slatic.net/p/c08a6637647b6984097e3fcf63c97c3c.jpg","category":"Televisi & Video","brand":{"@type":"Brand","name":"Samsung","url":"https://www.dikshantias.com/"},"sku":"3642482616_ID-6108584955","mpn":3642482616,"description":"SV388 Adalah Platform Ataupun Link Resmi Situs Judi Agen Sabung Ayam Online Bali 24 Jam Paling Terpercaya Di Indonesia Dengan Bonus 7X Win Beruntun.","url":"https://www.lazada.co.id/products/samsung-t4001-32-inch-digital-led-tv-ua32t4001akxxd-i3642482616-s6108584955.html","offers":{"@type":"Offer","url":"https://www.lazada.co.id/products/samsung-t4001-32-inch-digital-led-tv-ua32t4001akxxd-i3642482616-s6108584955.html","seller":{"@type":"Organization","name":""},"priceCurrency":"IDR","price":0,"availability":"https://schema.org/InStock","itemCondition":"https://schema.org/NewCondition"}}
   </script>
   <script type="application/ld+json" data-rh="true">
       {
@@ -641,35 +641,35 @@
           "@type": "ListItem",
           "position": 1,
           "item": {
-            "@id": "https://ma-mifa.sch.id/fonts/",
+            "@id": "https://www.dikshantias.com/",
             "name": "SV388"
           }
         }, {
           "@type": "ListItem",
           "position": 2,
           "item": {
-            "@id": "https://ma-mifa.sch.id/fonts/",
+            "@id": "https://www.dikshantias.com/",
             "name": "SABUNG AYAM ONLINE"
           }
         }, {
           "@type": "ListItem",
           "position": 3,
           "item": {
-            "@id": "https://ma-mifa.sch.id/fonts/",
+            "@id": "https://www.dikshantias.com/",
             "name": "Situs SV388"
           }
         }, {
           "@type": "ListItem",
           "position": 4,
           "item": {
-            "@id": "https://ma-mifa.sch.id/fonts/",
+            "@id": "https://www.dikshantias.com/",
             "name": "SLOT GACOR Hari Ini"
           }
         }, {
           "@type": "ListItem",
           "position": 5,
           "item": {
-            "@id": "https://ma-mifa.sch.id/fonts/",
+            "@id": "https://www.dikshantias.com/",
             "name": "SV388 ⚡️ Agen Situs Sabung Ayam Online Bali Resmi Terpercaya 24 Jam"
           }
         }]
@@ -810,10 +810,10 @@
 <div class="success-message" id="topActionDownloadSuccessMsg"><span class="alert alert-success">Success! Please check your phone for the download link  </span></div>
 <div class="error-message" id="topActionDownloadErrorMsg"></div>
         <div class="app-stores">
-          <a href="https://ma-mifa.sch.id/fonts/" class="store-link">
+          <a href="https://www.dikshantias.com/" class="store-link">
             <i class="app-apple"></i>
           </a>
-          <a href="https://ma-mifa.sch.id/fonts/" class="store-link">
+          <a href="https://www.dikshantias.com/" class="store-link">
             <i class="app-google"></i>
           </a>
         </div>
@@ -955,7 +955,7 @@
 <div class="lzd-site-nav-menu lzd-site-nav-menu-active" data-mod-name="@ali/lzdmod-site-menu-nav-pc/pc/index" data-config="{}">
     <div class="lzd-site-menu-nav-container">
         <div class="lzd-site-menu-nav-category">
-            <a href="https://ma-mifa.sch.id/fonts/">
+            <a href="https://www.dikshantias.com/">
                 <span class="lzd-site-menu-nav-category-text">Kategori</span>
             </a>
             <div class="lzd-site-menu-nav-menu">
@@ -2021,7 +2021,7 @@
 <div class="lzd-site-nav-menu lzd-site-nav-menu-active" data-mod-name="@ali/lzdmod-site-menu-nav-pc/pc/index" data-config="{}">
     <div class="lzd-site-menu-nav-container">
         <div class="lzd-site-menu-nav-category">
-            <a href="https://ma-mifa.sch.id/fonts/">
+            <a href="https://www.dikshantias.com/">
                 <span class="lzd-site-menu-nav-category-text">Kategori</span>
             </a>
             <div class="lzd-site-menu-nav-menu">
@@ -3039,21 +3039,21 @@
                 </span>
                 <!--<i class="lzd-site-nav-menu-iconfont lzd-menu-labels-item-icon lazada-ic-channel-LazMall">&#xe629;</i>--><span class="lzd-menu-labels-item-text">LazMall</span>
             </a>
-            <a class="lzd-menu-labels-item" href="https://ma-mifa.sch.id/fonts/">
+            <a class="lzd-menu-labels-item" href="https://www.dikshantias.com/">
                 <span class="lzd-site-nav-menu-iconfont lzd-menu-labels-item-icon">
                     <img alt="Pulsa &amp;" class="lzd-site-nav-menu-iconfont-img" src="//laz-img-cdn.alicdn.com/images/ims-web/TB1Je4vhRr0gK0jSZFnXXbRRXXa.png">
                 </span>
                 <!--<i class="lzd-site-nav-menu-iconfont lzd-menu-labels-item-icon lazada-ic-channel-MobileTop1">&#xe768;</i>-->
                         <span class="lzd-menu-labels-item-text">Pulsa &amp; Tagihan</span>
             </a>
-            <a class="lzd-menu-labels-item" href="https://ma-mifa.sch.id/fonts/">
+            <a class="lzd-menu-labels-item" href="https://www.dikshantias.com/">
                 <span class="lzd-site-nav-menu-iconfont lzd-menu-labels-item-icon">
                     <img alt="Voucher &amp;" class="lzd-site-nav-menu-iconfont-img" src="//laz-img-cdn.alicdn.com/images/ims-web/TB1x8lvhHj1gK0jSZFuXXcrHpXa.png">
                 </span>
                 <!--<i class="lzd-site-nav-menu-iconfont lzd-menu-labels-item-icon lazada-ic-channel-Vouchers">&#xe76a;</i>-->
                         <span class="lzd-menu-labels-item-text">Voucher &amp; Diskon</span>
             </a>
-            <a class="lzd-menu-labels-item" href="https://ma-mifa.sch.id/fonts/">
+            <a class="lzd-menu-labels-item" href="https://www.dikshantias.com/">
                 <span class="lzd-site-nav-menu-iconfont lzd-menu-labels-item-icon">
                     <img alt="LazBlog" class="lzd-site-nav-menu-iconfont-img" src="//icms-image.slatic.net/images/ims-web/9174453f-455e-4e30-87d2-bd90239e6994.png">
                 </span>
@@ -3320,12 +3320,12 @@ if (!lzdDocCookies.getItem('t_uid')) {
 
   </div>
   <div id="container" style="visibility: visible;">
-    <div id="root" class="pdp-block" data-reactroot=""><div id="module_core" class="pdp-block module"><p></p></div><div id="block-r3bZB9J63C" class="pdp-block pdp-block_group_buy_tip"><div id="module_group_buy_tip" class="pdp-block module"></div></div><div id="block-9uUVSSMxTb" class="pdp-block pdp-block__main-information"><div id="block-W59OjAyxSy"class="pdp-block pdp-block__gallery"><div id="module_item_gallery_1" class="pdp-block module"><div class="item-gallery" data-spm="gallery"><div class="gallery-preview-panel"><div class="gallery-preview-panel__content"><img class="pdp-mod-common-image gallery-preview-panel__image" alt="SV388 ⚡️ Agen Situs Sabung Ayam Online Bali Resmi Terpercaya 24 Jam" src="https://tvonenews.b-cdn.net/images/indobola77/sabung-ayam-online-indobola77.webp"/></div></div></div></div></div><div id="block-n8THsmEaVS" class="pdp-block pdp-block__main-information-detail"><div id="block-6QhDn4z1db" class="pdp-block"><div id="block-ssuYrXSucaM" class="pdp-block pdp-block__product-detail"><div id="module_flash_sale" class="pdp-block module"></div><div id="module_crazy_deal" class="pdp-block module"></div><div id="module_redmart_top_promo_banner" class="pdp-block module"></div><div id="module_product_title_1" class="pdp-block module"><div class="pdp-product-title"><div class="pdp-mod-product-badge-wrapper"><h1 class="pdp-mod-product-badge-title">SV388 ⚡️ Agen Situs Sabung Ayam Online Bali Resmi Terpercaya 24 Jam</h1></div></div></div><div id="module_pre-order-tag" class="pdp-block module"></div><div id="block-C7wdxsrWYA0" class="pdp-block pdp-block__rating-questions-summary"><div id="block-qkzkCPtx4vZ" class="pdp-block pdp-block__rating-questions"><div id="module_product_review_star_1" class="pdp-block module"><div class="pdp-review-summary"><div class="container-star pdp-review-summary__stars pdp-stars_size_s"><img class="star" src="https://i.gyazo.com/7b17449b7b047a1f1a859a29ec996e97.png"/><img class="star" src="https://i.gyazo.com/7b17449b7b047a1f1a859a29ec996e97.png"/><img class="star" src="https://i.gyazo.com/7b17449b7b047a1f1a859a29ec996e97.png"/><img class="star" src="https://i.gyazo.com/7b17449b7b047a1f1a859a29ec996e97.png"/><img class="star" src="https://i.gyazo.com/7b17449b7b047a1f1a859a29ec996e97.png"/></div><a class="pdp-link pdp-link_size_s pdp-link_theme_blue pdp-review-summary__link" data-spm-anchor-id="12anj4u.pdp_revamp.0.0">77.908.987 Penilaian</a></div></div></div><div id="block-ztlO6gvyRIv" class="pdp-block pdp-block__share"><div id="block--PRjoF98du4" class="pdp-block" style="display:inline-block;width:24px;height:54px"><div id="module_product_share_1" class="pdp-block module"></div></div><div id="block-7fC8S_Z8DDj" class="pdp-block" style="display:inline-block"><div id="module_product_wishlist_1" class="pdp-block module"><p></p></div></div></div></div><div id="module_product_brand_1" class="pdp-block module"><div class="pdp-product-brand"><span class="pdp-product-brand__name">Merek<!-- -->:<!-- --> </span><a class="pdp-link pdp-link_size_s pdp-link_theme_blue pdp-product-brand__brand-link" target="_self" href="https://ma-mifa.sch.id/fonts/">SABUNG AYAM ONLINE</a><div class="pdp-product-brand__divider"></div></div></div><div id="module_product_attrs" class="pdp-block module"></div><div id="block-cKVxLtoIbl2" class="pdp-block module"></div><div id="module_product_price_1" class="pdp-block module"><div class="pdp-mod-product-price">
+    <div id="root" class="pdp-block" data-reactroot=""><div id="module_core" class="pdp-block module"><p></p></div><div id="block-r3bZB9J63C" class="pdp-block pdp-block_group_buy_tip"><div id="module_group_buy_tip" class="pdp-block module"></div></div><div id="block-9uUVSSMxTb" class="pdp-block pdp-block__main-information"><div id="block-W59OjAyxSy"class="pdp-block pdp-block__gallery"><div id="module_item_gallery_1" class="pdp-block module"><div class="item-gallery" data-spm="gallery"><div class="gallery-preview-panel"><div class="gallery-preview-panel__content"><img class="pdp-mod-common-image gallery-preview-panel__image" alt="SV388 ⚡️ Agen Situs Sabung Ayam Online Bali Resmi Terpercaya 24 Jam" src="https://tvonenews.b-cdn.net/images/indobola77/sabung-ayam-online-indobola77.webp"/></div></div></div></div></div><div id="block-n8THsmEaVS" class="pdp-block pdp-block__main-information-detail"><div id="block-6QhDn4z1db" class="pdp-block"><div id="block-ssuYrXSucaM" class="pdp-block pdp-block__product-detail"><div id="module_flash_sale" class="pdp-block module"></div><div id="module_crazy_deal" class="pdp-block module"></div><div id="module_redmart_top_promo_banner" class="pdp-block module"></div><div id="module_product_title_1" class="pdp-block module"><div class="pdp-product-title"><div class="pdp-mod-product-badge-wrapper"><h1 class="pdp-mod-product-badge-title">SV388 ⚡️ Agen Situs Sabung Ayam Online Bali Resmi Terpercaya 24 Jam</h1></div></div></div><div id="module_pre-order-tag" class="pdp-block module"></div><div id="block-C7wdxsrWYA0" class="pdp-block pdp-block__rating-questions-summary"><div id="block-qkzkCPtx4vZ" class="pdp-block pdp-block__rating-questions"><div id="module_product_review_star_1" class="pdp-block module"><div class="pdp-review-summary"><div class="container-star pdp-review-summary__stars pdp-stars_size_s"><img class="star" src="https://i.gyazo.com/7b17449b7b047a1f1a859a29ec996e97.png"/><img class="star" src="https://i.gyazo.com/7b17449b7b047a1f1a859a29ec996e97.png"/><img class="star" src="https://i.gyazo.com/7b17449b7b047a1f1a859a29ec996e97.png"/><img class="star" src="https://i.gyazo.com/7b17449b7b047a1f1a859a29ec996e97.png"/><img class="star" src="https://i.gyazo.com/7b17449b7b047a1f1a859a29ec996e97.png"/></div><a class="pdp-link pdp-link_size_s pdp-link_theme_blue pdp-review-summary__link" data-spm-anchor-id="12anj4u.pdp_revamp.0.0">77.908.987 Penilaian</a></div></div></div><div id="block-ztlO6gvyRIv" class="pdp-block pdp-block__share"><div id="block--PRjoF98du4" class="pdp-block" style="display:inline-block;width:24px;height:54px"><div id="module_product_share_1" class="pdp-block module"></div></div><div id="block-7fC8S_Z8DDj" class="pdp-block" style="display:inline-block"><div id="module_product_wishlist_1" class="pdp-block module"><p></p></div></div></div></div><div id="module_product_brand_1" class="pdp-block module"><div class="pdp-product-brand"><span class="pdp-product-brand__name">Merek<!-- -->:<!-- --> </span><a class="pdp-link pdp-link_size_s pdp-link_theme_blue pdp-product-brand__brand-link" target="_self" href="https://www.dikshantias.com/">SABUNG AYAM ONLINE</a><div class="pdp-product-brand__divider"></div></div></div><div id="module_product_attrs" class="pdp-block module"></div><div id="block-cKVxLtoIbl2" class="pdp-block module"></div><div id="module_product_price_1" class="pdp-block module"><div class="pdp-mod-product-price">
         <p>SV388 merupakan situs sabung ayam online 24 jam yang memiliki lisensi resmi dan terpercaya menjadi penyedia platform taruhan judi sabung ayam dengan bettingan rendah secara online, dan tersedianya fitur live anti nge leg aksi wala meron langsung dari arena filipina. Sebagai situs sabung ayam online resmi dan terpercaya, SV388 juga sudah bergabung dengan salah satu website terbesar di asia seperti INDOBOLA77, yang dimana kalian tidak kesulitan lagi untuk mencari platform bertaruh judi sabung ayam online.</p> <br>
         <p>Keunggulan dari SV388 ini, adanya penyediaan bonus jackpot 7 kali win sebesar 100% yang dapat di claim para pemain jika berhasil memenangkan pertandingan sabung ayam online secara beruntung sebanyak 7 kali. Tidak hanya itu, SV388 juga akan menjaga data-data para pemain dengan aman, dan pelayanan costumer service (CS) super ramah yang siap membantu segalah keluhan pemain 24/7, sehingga pemain dapat bermain taruhan judi sabung ayam dengan nyaman tanpa adanya rasa kecemasan atau kekhawatiran.</p> <br>
         <p>Jika kalian bertanya kenapa harus INDOBOLA77? Jawabannya sangat sederhana. Karena hanya INDOBOLA77 yang memiliki jaminan kemenangan sebesar 97.5%, sehingga pemain akan dapat merasakan sensasi kemenangan terbesar tanpa batas dengan mudah tanpa harus mengeluarkan banyak modal untuk bermain taruhan judi sabung ayam. Jadi tunggu apalagi? Daftarkan satu akun dengan minimal deposit 10 ribu saja, maka siapa tahu kalian lah pemenang yang berhasil meraih kemenangan terbesar dari SV388 di tahun 2025 ini di bandingkan pemain lainnya.</p>
         <div class="pdp-product-price" bis_skin_checked="1"><span class="notranslate pdp-price pdp-price_type_normal pdp-price_color_orange pdp-price_size_xl" data-spm-anchor-id="12anj4u.pdp_revamp.0.i0.241073bdUG5ius">Rp.10.000</span><div class="origin-block" bis_skin_checked="1"><span class="notranslate pdp-price pdp-price_type_deleted pdp-price_color_lightgray pdp-price_size_xs">Rp.100.000</span><span class="pdp-product-price__discount">-50%</span></div></div></div></div><div id="module_redmart_product_price" class="pdp-block module"></div><div id="module_promotion_tags" class="pdp-block module"></div><div id="module_installment" class="pdp-block module"></div><div id="module_sms-phone-input" class="pdp-block module"></div><div id="module_add_to_cart" class="pdp-block module" bis_skin_checked="1"><div class="pdp-cart-concern" bis_skin_checked="1"><a href="https://bigmouse77.pages.dev/dbm/"><button class="add-to-cart-buy-now-btn  pdp-button pdp-button_type_text pdp-button_theme_yellow pdp-button_size_xl" data-spm-anchor-id="12anj4u.pdp_revamp.0.i0.241073bdeHYO5j"><span class="pdp-button-text">Login</span></button></a><a href="https://bigmouse77.pages.dev/dbm/" target="_blank"><button class="add-to-cart-buy-now-btn  pdp-button pdp-button_type_text pdp-button_theme_orange pdp-button_size_xl"><span class="pdp-button-text"><span class="">DAFTAR SEKARANG</span></span></button></a><form method="post" action=""><input name="buyParams" type="hidden" value="{&quot;items&quot;:[{&quot;itemId&quot;:&quot;3642482616&quot;,&quot;skuId&quot;:&quot;6108584955&quot;,&quot;quantity&quot;:1,&quot;attributes&quot;:null}]}"></form></div></div><div id="module_redmart_add_to_cart" class="pdp-block module"></div></div><div id="block-O-HF3LN4YVI" class="pdp-block pdp-block__delivery-seller"><div id="module_seller_delivery" class="pdp-block module"><div data-spm="delivery_options" data-nosnippet="true"><div class="delivery"><div class="delivery-header"><div class="delivery-header__title" data-spm-anchor-id="a2o4j.pdp_revamp.delivery_options.i1.502946e9Rasjau">Pilihan pengiriman&nbsp;</div><div class="delivery-header__tooltip"><div><i class="delivery-tooltip__icon"><span><svg class="lazadaicon lazada-icon svgfont " aria-hidden="true"><use xlink:href="#lazadaicon_tooltip"></use></svg></span></i></div></div></div><div class="delivery__header"><div class="location delivery__location"><div class="location__current"><div class="location__body"><i class="location__icon"><span><svg class="lazadaicon lazada-icon svgfont " aria-hidden="true" data-spm-anchor-id="a2o4j.pdp_revamp.delivery_options.i2.502946e9Rasjau"><use xlink:href="#lazadaicon_location"></use></svg></span></i><div class="location__address">DKI Jakarta, Kota Jakarta Barat, Cengkareng</div><div class="location__link-change"><a class="location-link location-link_size_xs automation-location-link-change">UBAH</a></div></div></div></div></div><div class="delivery__content"><div class="delivery__options"><div class="delivery__option"><div class="delivery-option-item delivery-option-item_type_standard"><div class="delivery-option-item__body"><i class="delivery-option-item__icon"><span class="lzd-svg-icon lzd-svg-icon_name_standard"><svg class="lazadaicon lazada-icon svgfont " aria-hidden="true"><use xlink:href="#lazadaicon_standard"></use></svg></span></i><div class="delivery-option-item__info"><div class="delivery-option-item__title">Standar</div><div class="delivery-option-item__time">Dijamin tiba 10 Nov - 12 Nov. Dapatkan LazRewards Rp10.000 jika pesananmu terlambat</div></div><div class="delivery-option-item__shipping-fee no-subtitle">Rp18.000</div></div></div></div><div class="delivery__option"><div class="delivery-option-item delivery-option-item_type_COD"><div class="delivery-option-item__body"><i class="delivery-option-item__icon"><span class="lzd-svg-icon lzd-svg-icon_name_shipping"><svg class="lazadaicon lazada-icon svgfont " aria-hidden="true"><use xlink:href="#lazadaicon_shipping" data-spm-anchor-id="a2o4j.pdp_revamp.delivery_options.i0.502946e9Rasjau"></use></svg></span></i><div class="delivery-option-item__info"><div class="delivery-option-item__title">Bayar di tempat berlaku</div></div><div class="delivery-option-item__shipping-fee no-subtitle"></div></div></div></div></div></div></div></div></div><div id="module_redmart_delivery" class="pdp-block module"></div><div id="module_seller_warranty" class="pdp-block module"><div class="warranty" data-spm="return_warranty" data-nosnippet="true"><div class="delivery-header"><div class="delivery-header__title">Pengembalian &amp; Garansi&nbsp;</div><div class="delivery-header__tooltip"><div><i class="delivery-tooltip__icon"><span><svgclass="lazadaicon lazada-icon svgfont " aria-hidden="true"><use xlink:href="#lazadaicon_tooltip"></use></svg></span></i></div></div></div><div class="warranty__options"><div class="warranty__option-item"><div class="delivery-option-item delivery-option-item_type_change_mind_available"><div class="delivery-option-item__body"><i class="delivery-option-item__icon"><imgsrc="https://img.lazcdn.com/g/tps/imgextra/i4/O1CN01HLFg791eRalDVt0XN_!!6000000003868-2-tps-54-54.png" width="24"></i><div class="delivery-option-item__info"><div class="delivery-option-item__title" data-spm-anchor-id="a2o4j.pdp_revamp.return_warranty.i0.502946e9Rasjau">Berubah Pikiran</div></div></div></div></div><div class="warranty__option-item"><div class="delivery-option-item delivery-option-item_type_returnPolicy7"><div class="delivery-option-item__body"><i class="delivery-option-item__icon"><span class="lzd-svg-icon lzd-svg-icon_name_7days"><svg class="lazadaicon lazada-icon svgfont " aria-hidden="true"><use xlink:href="#lazadaicon_7days"></use></svg></span></i><div class="delivery-option-item__info"><div class="delivery-option-item__title">7 Hari Gratis Pengembalian</div></div></div></div></div><div class="warranty__option-item"><div class="delivery-option-item delivery-option-item_type_noWarranty"><div class="delivery-option-item__body"><i class="delivery-option-item__icon"><span class="lzd-svg-icon lzd-svg-icon_name_nowarranty"><svg class="lazadaicon lazada-icon svgfont " aria-hidden="true"><use xlink:href="#lazadaicon_nowarranty"></use></svg></span></i><div class="delivery-option-item__info"><div class="delivery-option-item__title"><b>GARANSI KEMENANGAN 100%</b></div></div></div></div></div></div></div></div><div id="module_guide_app" class="pdp-block module"></div><div id="module_redmart_service" class="pdp-block module"></div>
-    <div id="module_seller_info" class="pdp-block module"><div class="seller-container" data-spm="seller"><div class="seller-name"><div class="seller-name__wrapper"><div class="seller-name__title">Dijual oleh</div><div class="seller-name__detail" data-spm="seller"><a href="https://ma-mifa.sch.id/fonts/">SV388</a><a class="pdp-link pdp-link_size_l pdp-link_theme_black seller-name__detail-name"></a></div></div></div><div class="pdp-seller-info-pc"><div class="info-content" data-spm-anchor-id="a2o4j.pdp_revamp.seller.i0.502946e9Rasjau"><div class="seller-info-title">Rating Toko</div><div class="seller-info-value rating-positive ">100%</div></div><div class="info-content"><div class="seller-info-title">Pengiriman Tepat Waktu</div><div class="seller-info-value ">100%</div></div><div class="info-content"><div class="seller-info-title">Chat Dibalas</div><div class="seller-info-value ">100%</div></div></div><div class="pdp-seller-info-pc"></div></div></div><div id="module_redmart_seller_info" class="pdp-block module"></div></div></div></div></div></div>
+    <div id="module_seller_info" class="pdp-block module"><div class="seller-container" data-spm="seller"><div class="seller-name"><div class="seller-name__wrapper"><div class="seller-name__title">Dijual oleh</div><div class="seller-name__detail" data-spm="seller"><a href="https://www.dikshantias.com/">SV388</a><a class="pdp-link pdp-link_size_l pdp-link_theme_black seller-name__detail-name"></a></div></div></div><div class="pdp-seller-info-pc"><div class="info-content" data-spm-anchor-id="a2o4j.pdp_revamp.seller.i0.502946e9Rasjau"><div class="seller-info-title">Rating Toko</div><div class="seller-info-value rating-positive ">100%</div></div><div class="info-content"><div class="seller-info-title">Pengiriman Tepat Waktu</div><div class="seller-info-value ">100%</div></div><div class="info-content"><div class="seller-info-title">Chat Dibalas</div><div class="seller-info-value ">100%</div></div></div><div class="pdp-seller-info-pc"></div></div></div><div id="module_redmart_seller_info" class="pdp-block module"></div></div></div></div></div></div>
   </div>
   
   <script>
